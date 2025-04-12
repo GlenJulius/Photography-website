@@ -1,4 +1,4 @@
-# 📸 Jane Miller Photography
+# 📸 Glen Julius Photography
 
 Welcome to the official repository for **Glen JuliusPhotography** — a creative space to showcase the work, style, and philosophy of Seattle-based portrait and lifestyle photographer, Glen Julius.
 
